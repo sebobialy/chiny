@@ -2,7 +2,11 @@
 
 Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór nagranej 21-07.2025 - 4.08.2025.
 
-# Shanghai
+# Wideo
+
+## Sebastian
+
+### Shanghai
 
 * Shanghai Tower https://www.youtube.com/watch?v=Up2z-HpVaSE
 * The Bund - https://www.youtube.com/watch?v=5ssbSGqdcX8
@@ -11,3 +15,9 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór nagranej 21-07.2025 - 4.08.
 * Nanjing Street - https://www.youtube.com/watch?v=kQNdU70kQBY
 * New Town Plaza - https://www.youtube.com/watch?v=7MasdFRZeqc
 * Shanghai Night - https://www.youtube.com/watch?v=H_-dZi1bc2o
+
+# Ścieżki GPS
+
+* Dzien 1-9 https://www.google.com/maps/d/edit?mid=1Z9emzUEDb46f5KHogsorJH8refcLozA&usp=sharing
+
+* Dzień 10-13 https://www.google.com/maps/d/edit?mid=1pUSmZUJDM_5d-APWxwCbE33BL6KMAR4&usp=sharing
