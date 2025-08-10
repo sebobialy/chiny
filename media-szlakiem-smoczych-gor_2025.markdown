@@ -20,6 +20,15 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 
 * Hongcun - https://www.youtube.com/watch?v=J6qZ-wYLcrU
 * Tunxi Ancient Street - https://www.youtube.com/watch?v=yrhDmwtyERU
+* Huang Shan - https://www.youtube.com/watch?v=USvBkjLarlY
+
+### Changsha 
+
+* Mao Statue - https://www.youtube.com/watch?v=8pdzD_2jkhI
+
+### Zhangjiajie
+
+* Night Walk - https://www.youtube.com/watch?v=f6okuraQaH8
 
 # Ścieżki GPS
 
