@@ -1,7 +1,8 @@
 # Informacja
-Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór nagranej 21-07.2025 - 4.08.2025
 
-# Szanghai
+Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór nagranej 21-07.2025 - 4.08.2025.
+
+# Shanghai
 
 * Shanghai Tower https://www.youtube.com/watch?v=Up2z-HpVaSE
 * The Bund - https://www.youtube.com/watch?v=5ssbSGqdcX8
