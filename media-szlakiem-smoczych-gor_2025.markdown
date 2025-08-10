@@ -16,9 +16,10 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 * New Town Plaza - https://www.youtube.com/watch?v=7MasdFRZeqc
 * Shanghai Night - https://www.youtube.com/watch?v=H_-dZi1bc2o
 
-### Hongcun
+### Huangshan
 
-* https://www.youtube.com/watch?v=J6qZ-wYLcrU
+* Hongcun - https://www.youtube.com/watch?v=J6qZ-wYLcrU
+* Tunxi Ancient Street - https://www.youtube.com/watch?v=yrhDmwtyERU
 
 # Ścieżki GPS
 
