@@ -30,6 +30,8 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 
 * Night Walk - https://www.youtube.com/watch?v=f6okuraQaH8
 * Tianmen Mountain - https://www.youtube.com/watch?v=QJnJcxmngKk
+* Charming Xiangxi - https://www.youtube.com/watch?v=ktJhCOEmut0
+* Avatar Mountains - https://www.youtube.com/watch?v=0CfG4ifeenA
 
 # Ścieżki GPS
 
