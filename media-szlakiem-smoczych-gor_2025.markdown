@@ -39,7 +39,8 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 
 * Kuan and Zhai Alley - https://www.youtube.com/watch?v=nyOQghBDaq8
 * Panda Base - https://www.youtube.com/watch?v=wEez_B-zgdg
-
+* Wenshu Temple - https://www.youtube.com/watch?v=ls_IG5mYV5E
+* Wuhouci Hengjie - https://www.youtube.com/watch?v=T947sPiSOak
 
 # Ścieżki GPS
 
