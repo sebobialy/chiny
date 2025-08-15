@@ -43,6 +43,10 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 * Wuhouci Hengjie - https://www.youtube.com/watch?v=T947sPiSOak
 * Jinli Ancient Street - https://www.youtube.com/watch?v=jrfrjgOjqWA
 
+### Beijing
+
+* Temple of Heaven - https://www.youtube.com/watch?v=FKM8krNfHB0
+
 # Ścieżki GPS
 
 * Dzien 1-9 https://www.google.com/maps/d/edit?mid=1Z9emzUEDb46f5KHogsorJH8refcLozA&usp=sharing
