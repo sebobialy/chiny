@@ -41,6 +41,7 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 * Panda Base - https://www.youtube.com/watch?v=wEez_B-zgdg
 * Wenshu Temple - https://www.youtube.com/watch?v=ls_IG5mYV5E
 * Wuhouci Hengjie - https://www.youtube.com/watch?v=T947sPiSOak
+* Jinli Ancient Street - https://www.youtube.com/watch?v=jrfrjgOjqWA
 
 # Ścieżki GPS
 
