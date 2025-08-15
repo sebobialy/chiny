@@ -33,6 +33,13 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 * Charming Xiangxi - https://www.youtube.com/watch?v=ktJhCOEmut0
 * Avatar Mountains - https://www.youtube.com/watch?v=0CfG4ifeenA
 * Skywalk - https://www.youtube.com/watch?v=CawXxWdUaRs
+* Phoenix - https://www.youtube.com/watch?v=um9_lAvGPMY
+
+### Chengdu
+
+* Kuan and Zhai Alley - https://www.youtube.com/watch?v=nyOQghBDaq8
+* Panda Base - https://www.youtube.com/watch?v=wEez_B-zgdg
+
 
 # Ścieżki GPS
 
