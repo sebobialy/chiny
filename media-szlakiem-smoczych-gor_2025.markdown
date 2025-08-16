@@ -46,6 +46,15 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 ### Beijing
 
 * Temple of Heaven - https://www.youtube.com/watch?v=FKM8krNfHB0
+* Tiananmen Square - https://www.youtube.com/watch?v=4Bcls4raSTY
+* Forbidden City - https://www.youtube.com/watch?v=N0CS_ThLuUo
+* Ming Tombs - https://www.youtube.com/watch?v=GPGa1J9qTFg
+* Great Wall - https://www.youtube.com/watch?v=3SAOXFZw7j4
+* Tea House - https://www.youtube.com/watch?v=PjdSMsi3uPI
+* Longing Pearl Factory - https://www.youtube.com/watch?v=f0zzEaR9WFU
+* Bird's Nest - https://www.youtube.com/watch?v=VkEkk96qVnQ
+* Summer Palace - https://www.youtube.com/watch?v=6mHTqbP46Q4
+* Hutong - https://www.youtube.com/watch?v=mYwaC37SEOA
 
 # Ścieżki GPS
 
