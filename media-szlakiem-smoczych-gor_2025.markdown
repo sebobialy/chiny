@@ -56,6 +56,10 @@ Fragmenty wycieczki Rainbow - Szlakiem Smoczych Gór, nagranej 21-07.2025 - 4.08
 * Summer Palace - https://www.youtube.com/watch?v=6mHTqbP46Q4
 * Hutong - https://www.youtube.com/watch?v=mYwaC37SEOA
 
+### Wszystkie filmy YouTube w postaci plików
+
+https://drive.google.com/drive/folders/19mdFKjDP7KezoCao_RndUNEG8snA_CZS?usp=sharing
+
 # Ścieżki GPS
 
 * Dzien 1-9 https://www.google.com/maps/d/edit?mid=1Z9emzUEDb46f5KHogsorJH8refcLozA&usp=sharing
